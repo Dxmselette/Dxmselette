@@ -1,16 +1,22 @@
-## Hi there 👋
 
-<!--
-**Dxmselette/Dxmselette** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="1108" height="804" alt="Screenshot_20260630-120109~2" src="https://github.com/user-attachments/assets/fd9de02c-09bb-44d2-bffe-713bb96c4add" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ $${\color{lightblue}  𓂃 ;; ⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹ ;; 𓂃}$$
+ 
+
+
+$${\color{lightblue}Hello, \space I'm \space Selette.}$$
+
+$${\color{lightblue}She / Her \space AFAB \space lithromantic}$$
+
+# $${\color{lightblue}What \space Happened ? \space}$$
+
+
+
+why im i not active on discord? im locked out of my account to rest from the toxic relationships i had there, not sure if i could return.
+
+
+
+$${\color{lightblue} 𓂃 ;; ⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹ ;; 𓂃}$$
